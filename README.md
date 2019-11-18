@@ -1,3 +1,3 @@
 # Alex-bobo.github.io
 github site
-!(Безымянный3232.png)
+!(C:\Users\Студент\Downloads\Безымянный12121.png)
