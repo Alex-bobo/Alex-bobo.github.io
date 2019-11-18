@@ -1,3 +1,3 @@
 # Alex-bobo.github.io
 github site
-!Безымянный3232.png
+!(Безымянный3232.png)
